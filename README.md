@@ -1,0 +1,2 @@
+# pomocnik
+Taki fajny bocik
